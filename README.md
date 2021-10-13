@@ -35,6 +35,6 @@ Follow Me on Social Media:
 
 
 
-	Copyright 2021 Raisul Hasan Rafi | All Rights Reserved.
+Copyright 2021 Raisul Hasan Rafi | All Rights Reserved.
 
 
